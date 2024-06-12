@@ -1,6 +1,6 @@
 ill be remaking my intro soon, but for now check out my [graphics hoard](https://rentry.co/geeks_in_love) ^_^
 
-<h2><b>whisper to interact!!!</b>pleaz,,, im offtab most of the time so just whisper if you wanna talk to me :333</h2>
+<h2><b>whisper to interact!!!</b>pleaz,,, im offtab most of the time so just whisper me if you wanna talk to me :333</h2>
 
 as resotown's about to end (or if it already has), feel free to send me a friend request to my ensekai account, my player id is 400853689570582535 :3 just make sure to leave a message !
 
